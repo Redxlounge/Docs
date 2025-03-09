@@ -1,5 +1,3 @@
-**Anleitung: Wie stellt man Silage her?** 🌾🚜  
-
 Silage ist ein wichtiges Futtermittel für Tiere in der Landwirtschaft, besonders für Kühe. Hier ist eine Schritt-für-Schritt-Anleitung, wie du Silage herstellen kannst, sowie hilfreiche Tipps, um das Beste aus deinem Feld herauszuholen.
 
 ---
